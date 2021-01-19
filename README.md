@@ -2,3 +2,5 @@
 
 ## Sejam bem vindos! 
 
+* Strogonoff de Frango
+* Macarrão Instantâneo 
